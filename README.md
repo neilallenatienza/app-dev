@@ -1,2 +1,4 @@
 ## My Favorite Movie: Grave of the Fireflies (1988)
-**Grave of the Fireflies (1988)** is a deeply emotional and tragic anime film directed by Isao Takahata and produced by Studio Ghibli. It’s based on the semi-autobiographical short story by Akiyuki Nosaka and takes place during the final months of World War II in Japan. The film follows two siblings, Seita and his younger sister, Setsuko, as they struggle to survive in the aftermath of the bombing of Kobe.
+
+1988 | Directed by **Isao Takahata** | Studio Ghibli
+## j
