@@ -9,3 +9,5 @@ The film opens with Seita’s death, and then flashes back to show the events le
 > 
 > "It's not your fault... It's just that the world is like that." – Seita to Setsuko
 (A heartbreaking reflection on the randomness of suffering.)
+## Why It's So Impactful
+*Grave of the Fireflies* is more than just a war film; it is a deeply emotional exploration of innocence lost, the horrors of war, and the bond between siblings. Its portrayal of survival—especially through the lens of children—strikes at the core of human empathy, making it universally relatable despite its specific historical setting. The film doesn't shy away from the dark realities of life, but it also beautifully captures moments of human connection, love, and sacrifice.
